@@ -4,7 +4,7 @@
 
 ***
 
-![Capture du 2024-07-01 07-00-17](https://github.com/bunthyjava/C2-BotNet/Screenshot_20240919-225118.jpg)
+![Capture du](https://iili.io/dPXL6Yb.md.jpg)
 
 
 ***
